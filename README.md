@@ -16,7 +16,7 @@
 </p>  
 
 <p align="center">
- ${{\color{#8A0F25}{\texttt{ʰᵉ/ⁱᵗ }}}}$ε(♡ᵔ ˕ ')з <img src="https://wilardo.crd.co/assets/images/gallery02/22b510d3_original.gif?v=ee8a995d" alt="Centered Image" width="20">　¹⁴
+ ${{\color{#8A0F25}{\texttt{ʰᵉ/ⁱᵗ }}}}$ε(♡ᵔ ˕ ')з <img src="https://wilardo.crd.co/assets/images/gallery02/22b510d3_original.gif?v=ee8a995d" alt="Centered Image" width="20">
 </p>  
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://neckdoll.zombie.jp/material/line/silver-jyuji/line-jyujika-b002.gif)
